@@ -1,3 +1,5 @@
+<img width="1600" height="900" alt="WhatsApp Image 2026-10-06 at 12 10 02 PM" src="https://github.com/user-attachments/assets/c488ae49-d09c-48bd-bf30-79583416fdcd" />
+[laxmi_telecom_retail_wholesale-4 (3).html](https://github.com/user-attachments/files/33100248/laxmi_telecom_retail_wholesale-4.3.html)
 ## Hi there 👋
 
 <!--
